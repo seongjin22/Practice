@@ -1,9 +1,12 @@
 # 
-노래듣고 가세요 ^^
+^^
 
-![](https://image.fmkorea.com/files/attach/new/20190823/486616/1447200703/2117018664/b65382562aaaa720abed7270dac66d40.png)
+![](https://www.i-boss.co.kr/design/upload_file/__HTMLEDITOR__/cEF2lKLIUp/4a25690012b8d701f468db600b1ea8e2_145008906253.png)
 
- [링크1](https://youtu.be/Gf1OuxH7huk)  
- [링크2](https://youtu.be/c5j_wdQjzzE) 
-
- [링크3](https://youtu.be/XVdngPe5aoc)
+ [Reminiscence - 테일즈 위버(TalesWeaver) OST](https://youtu.be/Z-Q72YA3DFg)
+ 
+ 
+ [DJ OKAWARI "Midnight Train feat. Emi Meyer"](https://youtu.be/W72LiPMNs9E)
+ 
+ 
+ [Pink Sweat$ - Honesty](https://youtu.be/8MrZDLWvB94)
