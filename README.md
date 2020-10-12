@@ -10,5 +10,5 @@
  [영상](https://youtu.be/vHkz_T2SS5g)
  comment : 장윤정누님 표정에 집중해주세요들 ^^
  
- [링크3](https://youtu.be/j3DhRypYkxg)
+ [링크3](https://youtu.be/nt5mvz10kCw)
  
