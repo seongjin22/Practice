@@ -1,13 +1,13 @@
 # 
-0_<
+웃어라, 온 세상이 너와 함께 웃을 것이다. 울어라, 너 혼자 울 것이다. -- 올드보이 대사 中--
+회원님들도 웃으면서 공부합시다 ,,, ^^,,,,껄껄 
 
-![](https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcSjleZrKRaQEoP0qLDGBdvQM8XigEn3m30NlQ&usqp=CAU)
+![](https://lh3.googleusercontent.com/proxy/_5Y5xX50e96OerKEUBGst_UUjGUiwGJF7gp-Q6NauJRvflmeIWuFt8JmTv4lkLQbOJ6VphWD321gPhvdcPFACOClFVdZ7qjXZ4qUh9VPolW6zhWMTrvqhlHzTD0DCFOV1jGADQXg1P1afaGy9wSIPWmVLwyAtyLackXUHsnvERNr9zBdsu9-x-IaezVwRKkXpxK7reoouy2JXU2cOJSNFMTCBVlgSfrUo8SPEVtBwgzGAx1M6tL20RxZvg0PhGHBzPgh1BYw4j5rPccZX2fY0Bwx8XkyRWOH0Hsp4jC7nrr8vw1qKgw5XP3FPi3N7PCE)
 
- [Reminiscence - 테일즈 위버(TalesWeaver) OST](https://youtu.be/Z-Q72YA3DFg)
- comment : 들을때마다 새로워요 !
+ [자우림 (Jaurim) - 하하하 송 (Hahaha Song)](https://youtu.be/qYCrrEJ6kzg)
+
+ [](https://youtu.be/vHkz_T2SS5g)
+ comment : 장윤정누님 표정에 집중해주세요들 ^^
  
- [DJ OKAWARI "Midnight Train feat. Emi Meyer"](https://youtu.be/W72LiPMNs9E)
- comment : 한밤중에 기차타던 때가 그립다,,,,
+ [링크3](https://youtu.be/j3DhRypYkxg)
  
- [Pink Sweat$ - Honesty](https://youtu.be/8MrZDLWvB94)
- comment : 이분 얼굴은 할렘 갱스턴데 목소리가 ^^7
