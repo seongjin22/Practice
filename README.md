@@ -1,5 +1,6 @@
 # 
-웃어라, 온 세상이 너와 함께 웃을 것이다. 울어라, 너 혼자 울 것이다. -- 올드보이 대사 中--
+웃어라, 온 세상이 너와 함께 웃을 것이다. 울어라, 너 혼자 울 것이다. -- 올드보이 대사 中--  
+
 회원님들도 웃으면서 공부합시다 ,,, ^^,,,,껄껄 
 
 ![](https://lh3.googleusercontent.com/proxy/_5Y5xX50e96OerKEUBGst_UUjGUiwGJF7gp-Q6NauJRvflmeIWuFt8JmTv4lkLQbOJ6VphWD321gPhvdcPFACOClFVdZ7qjXZ4qUh9VPolW6zhWMTrvqhlHzTD0DCFOV1jGADQXg1P1afaGy9wSIPWmVLwyAtyLackXUHsnvERNr9zBdsu9-x-IaezVwRKkXpxK7reoouy2JXU2cOJSNFMTCBVlgSfrUo8SPEVtBwgzGAx1M6tL20RxZvg0PhGHBzPgh1BYw4j5rPccZX2fY0Bwx8XkyRWOH0Hsp4jC7nrr8vw1qKgw5XP3FPi3N7PCE)
