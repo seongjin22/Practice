@@ -1,11 +1,13 @@
-#  *^^*
+#  
 
 
 ![](https://opgg-com-image.akamaized.net/attach/images/20200826013111.608284.jpg)
 
-어--이  
-다 드루와  
-혼,내줄 테니,까  
+
+어--이
+나 와룡초 일짱인데
+덤벼라
+
 
 
  [서늘한](https://youtu.be/EzQsoZYY470)
