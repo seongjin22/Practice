@@ -3,8 +3,9 @@
 
 ![](https://opgg-com-image.akamaized.net/attach/images/20200826013111.608284.jpg)
 
+어--이  
 다 드루와  
-혼,내줄 테니,까 
+혼,내줄 테니,까  
 
 
  [서늘한](https://youtu.be/EzQsoZYY470)
