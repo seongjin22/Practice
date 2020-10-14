@@ -4,8 +4,8 @@
 ![](https://opgg-com-image.akamaized.net/attach/images/20200826013111.608284.jpg)
 
 
-어--이
-나 와룡초 일짱인데
+어--이  
+나 와룡초 일짱인데  
 덤벼라
 
 
