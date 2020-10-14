@@ -1,20 +1,9 @@
 #  
-
-
-![](https://opgg-com-image.akamaized.net/attach/images/20200826013111.608284.jpg)
-
-
 어--이  
 덤벼라  
 한꺼번에 상대해주마  
 
-
-
-
-
-
-
-
+![](https://opgg-com-image.akamaized.net/attach/images/20200826013111.608284.jpg)
 
 
 
