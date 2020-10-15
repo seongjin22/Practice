@@ -1,6 +1,6 @@
 #  
 
-![](https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcQ6hpLejeMve40lypMKOPbEWHs5424C3CSAZw&usqp=CAU)  
+![](https://static-storychat.pstatic.net/1267985_24375494/c0b5kf2a1dnnn0.png)  
 참 쉬죠잉?
 
 
