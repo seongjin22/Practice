@@ -5,10 +5,10 @@
 배고파
 
 
- [올까](https://youtu.be/Ffx774HVD2Q)  
+ [come](https://youtu.be/Ffx774HVD2Q)  
 
- [아로하](https://youtu.be/TWeV1urSkyQ)  
+ [aloha](https://youtu.be/TWeV1urSkyQ)  
  
- [갔다](https://youtu.be/k3-BDy55tq4)
+ [byebye](https://youtu.be/k3-BDy55tq4)
 
  
