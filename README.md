@@ -1,13 +1,12 @@
 #  
 
-![](https://lh3.googleusercontent.com/proxy/LpQkJx-ePH5hbYbgwYUY8j_q3GFO_hKwqK_2OPxDxS_UYEQcYZEDTGm2zEKO9YDuI5lMdsh8cOf3XNkU_rX98FabL7RUXHYu_2VqVast6ivdgtYpBI-g5fQXA5wctn45b87bgFowXMTa14pZktlYl86X5AOO37E8bA)    
+![](https://static.ebs.co.kr/images/public/2018/06/1/17/39/36/a30cab92-1648-4fd8-b58e-9b02366ed248.jpg)    
+ 아~~ 너무 행복하구요 yeah~
 
-^~^ 
+ [Ciki](https://youtu.be/1wBEzCOZ0RQ)  
 
- [이적 - 그땐 미처 알지 못했지](https://youtu.be/WRwCQvpD_B4)  
+ [Colde](https://youtu.be/mWW1U6H58Fg)  
 
- [최예근밴드 - adult](https://youtu.be/KpKIiBpGcjQ)  
-
- [samuel seo - Cliche](https://youtu.be/H1bXx3Pz2ag)  
+ [Ruel](https://youtu.be/bjwJ_ysRYU4)  
 
  
