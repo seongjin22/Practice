@@ -1,12 +1,11 @@
 #  
 
-![](https://static.ebs.co.kr/images/public/2018/06/1/17/39/36/a30cab92-1648-4fd8-b58e-9b02366ed248.jpg)    
- 아~~ 너무 행복하구요 yeah~
+![](https://www.urbanbrush.net/web/wp-content/uploads/edd/2020/02/urbanbrush-20200212051400694778.jpg)    
+ 왜들 그뤼 돠운 돼이써~?  
+ 뭐가 문제야 [쉐이 썸띵](https://youtu.be/AAOyOZ3GeZ0)  
 
- [Ciki](https://youtu.be/1wBEzCOZ0RQ)  
+ [rose -2hi](https://youtu.be/OhlGuMPuKG4)  
 
- [Colde](https://youtu.be/mWW1U6H58Fg)  
-
- [Ruel](https://youtu.be/bjwJ_ysRYU4)  
+ [나비(영어로 뭔가요??...) 와 cat](https://youtu.be/0dZnf09g77g)  
 
  
