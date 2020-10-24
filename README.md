@@ -14,7 +14,8 @@
  [lalalalalala](https://youtu.be/TgUo2q1VK7E)  
  ☞ 가사중에 she likes to mark her territory   
  이거를 그녀는 영역표시를 좋아해?? 이거 해석 제대로 된거 맞나여??
- 
+   
+   
  [오늘의 엔딩은 우리으 윤기타씨](https://youtu.be/Lm5pklfk7MQ)
 
  
