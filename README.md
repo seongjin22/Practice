@@ -1,21 +1,14 @@
 #  
 
-![](https://upload2.inven.co.kr/upload/2015/12/16/bbs/i13201890890.jpg)    
+![](https://mblogthumb-phinf.pstatic.net/MjAyMDAxMjlfMjM3/MDAxNTgwMzA3OTM4OTE2.c8xHgsbkGHw78TWsmcAokXBUnQiVhqS6nTvPJoXrsCog.81M-PHZl_b4fxk8NaTaUiAe-e_is_8x6oVEKaVhSul0g.JPEG.studygir/bbisygr_%281%29.jpeg?type=w2)    
 
-넘 힘들었슴다..  
-착하게 살겟읍니다...  
+ㅎ 평행세계에 나는 시험이 끝났던데 말이지 허허 ^^
 
- [하이 누나 청바지핏 너무 귀엽고 ㅎㅎ ](https://youtu.be/NC5lqY0xSp4)  
- ☞ stop! 할때 같이 멈추 주새여  
+ [stimson - flower](https://youtu.be/EcaUV-mrKEA)  
+
    
- [언젠가 한번 해볼날이 올까여??](https://youtu.be/adiKeNfK1Mc)  
- ☞ 저스틴비버의 보이프렌드랑 뭔가 느낌이 굉장히 비슷한듯??
+ [lg광고에 쓰였던 음악](https://youtu.be/B7BQP7T4iW0)  
+ ☞ 나오는 모델분 존함이 뭔가요..? 엄청 이쁘심.....;
 
- [lalalalalala](https://youtu.be/TgUo2q1VK7E)  
- ☞ 가사중에 she likes to mark her territory   
- 이거를 그녀는 영역표시를 좋아해?? 이거 해석 제대로 된거 맞나여??
-   
-   
- [오늘의 엔딩은 우리으 윤기타씨](https://youtu.be/Lm5pklfk7MQ)
-
+ [love u zion.T](https://youtu.be/v_DLSpmF5zo)  
  
