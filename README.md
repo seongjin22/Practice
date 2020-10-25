@@ -7,7 +7,7 @@
  [stimson - flower](https://youtu.be/EcaUV-mrKEA)  
 
    
- [lg광고에 쓰였던 음악](https://youtu.be/B7BQP7T4iW0)  
+ [gimme gimme](https://youtu.be/B7BQP7T4iW0)  
  ☞ 나오는 모델분 존함이 뭔가요..? 엄청 이쁘심.....;
 
  [love u zion.T](https://youtu.be/v_DLSpmF5zo)  
