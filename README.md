@@ -1,14 +1,15 @@
 #  
 
-![](https://mblogthumb-phinf.pstatic.net/MjAyMDAxMjlfMjM3/MDAxNTgwMzA3OTM4OTE2.c8xHgsbkGHw78TWsmcAokXBUnQiVhqS6nTvPJoXrsCog.81M-PHZl_b4fxk8NaTaUiAe-e_is_8x6oVEKaVhSul0g.JPEG.studygir/bbisygr_%281%29.jpeg?type=w2)    
+![](https://itcm.co.kr/files/attach/images/813/004/631/001/baefc86ec5f216099c8892d6987d457b.jpg)   
+과제 왤케 밀렸나   
+ㅋ  
+ㅜ  
 
-재밋다 공부 껄껄!!
-
- [얍](https://youtu.be/3iZCqGM35nw)  
+ [윤하의 숨은 명곡](https://youtu.be/svEFcTc_PpI)  
 
    
- [얍얍](https://youtu.be/-TDH-v44k8Y)  
+ [빛과소금 - 오래된 친구](https://youtu.be/8JZ7pD3tvQQ)  
+>> 술마시고 친구랑 놀방가서 부르면 웃길듯ㅋㅋㅋㅋ  
 
-
- [얍얍얍](https://youtu.be/MZaze-3LKCo)  
- 
+ [시몬스 침대 CF음악](https://youtu.be/NmeaLvaU77Q)  
+>> 노래는 몰라도 광고보면 아~ 하실듯?
