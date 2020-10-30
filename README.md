@@ -13,4 +13,4 @@ Comdian kim .. just remind the Socrates's words !
 
 [오늘은 10월 마지막날 밤](https://youtu.be/I-hw1AkqFro)  
 
-[멈춰진것 같던 시간들~](https://youtu.be/cNmzoTmQ_6c)
+[jannavi](https://youtu.be/1uh7UjyVd4U)
