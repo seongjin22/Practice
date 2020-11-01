@@ -1,13 +1,11 @@
 #  
 
-![]()   
-시즌4~6 GrandMaster Tier 를 
+![](https://file3.instiz.net/data/file3/2018/04/06/c/3/3/c33ab864d7ea010184a6d3ea72445eee.jpg)    
  
 
-[bruno Mars - Finnese](https://youtu.be/LsoLEjrDogU)  
+[nervous](https://youtu.be/a4PAoUzoURM)  
 
-[Avalon by Johan glossner](https://youtu.be/GKsUbXwfC04)  
+[비처럼 음악처럼](https://youtu.be/eYiDIeSk3Go)  
 
-[오늘은 10월 마지막날 밤](https://youtu.be/I-hw1AkqFro)  
+[서울의 달](https://youtu.be/0hG_I8USKIc)  
 
-[jannavi](https://youtu.be/1uh7UjyVd4U)
