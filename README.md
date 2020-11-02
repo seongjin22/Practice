@@ -2,7 +2,6 @@
 
 ![](https://t1.daumcdn.net/thumb/R720x0/?fname=http://t1.daumcdn.net/brunch/service/user/4AyH/image/W657jLf6xCnD4ovvQwD34tJnl7w.png)    
  Thanks for coming  
- Have a good Night  
 
 [SZA, Justin Timberlake - The Other Side (Lyrics)](https://youtu.be/PMDVZaM6wqc)   
 > 농염한 sexyback 추던 그 팀버레이크가 맞습니다!  ㅎㅎ..   
@@ -18,5 +17,5 @@
 [Dane Amar - Green Tea & Honey feat. Jereena Montemayor](https://youtu.be/QaAYQ1Ms0fs)
 > 오늘하루도 고생 많으셤슴다 다들 ^__^ 
 
-![](https://www.hushwish.com/wp-content/uploads/2018/11/emo_kingto_018.png)
+![](https://www.hushwish.com/wp-content/uploads/2018/11/emo_kingto_018.png)  
 이상 20201102 -J-
