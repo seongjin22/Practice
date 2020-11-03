@@ -1,6 +1,6 @@
 #  
 
-![](https://t1.daumcdn.net/thumb/R720x0/?fname=http://t1.daumcdn.net/brunch/service/user/4AyH/image/W657jLf6xCnD4ovvQwD34tJnl7w.png)    
+![](https://www.ygosu.com/community/board/download.yg?idx=3764540)    
  Thanks for coming  
 
 [SZA, Justin Timberlake - The Other Side (Lyrics)](https://youtu.be/PMDVZaM6wqc)   
