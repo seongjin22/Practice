@@ -17,6 +17,7 @@
 [오오온츄 stay with me](https://youtu.be/pB-5XG-DbAA)
   
 [최근에 조회수 70억을 돌파한 조회수1위에 빛나는 어마무시한(무시ㄴ) 노래.. (무서움주의)](https://youtu.be/XqZsoesa55w)  
+> 유튭 싫어요수가 무료 1008만 !!  
 
 ![](https://scienceoflove.co.kr/wp-content/uploads/2016/01/sol015_illu_03.png)  
 이상 20201104 -J-
