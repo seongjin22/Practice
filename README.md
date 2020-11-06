@@ -7,8 +7,8 @@
 [honne -day1](https://youtu.be/hWOB5QYcmh0)   
 > 시몬스침대 광고하던 그남자  
 
-[mabinc 별](https://youtu.be/WDmHJ7W-_Eg)  
-> 몽환적인 느낌이 묘하네~  
+[upsahl - people i dont like](https://youtu.be/GYLcu5tFjUU)  
+> dont be the member of the people i dont like ^^  kkk
 
 [dawn- phobia](https://youtu.be/fPeuUFrSc0k)  
 > "다운"   
