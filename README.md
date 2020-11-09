@@ -1,21 +1,16 @@
 #  
 
-![](https://image.shutterstock.com/image-vector/welcome-poster-spectrum-brush-strokes-260nw-1146069941.jpg)    
+![](https://item.kakaocdn.net/do/bef59207f5155a4eddd632c9a833e80d7154249a3890514a43687a85e6b6cc82)    
 
 
 
-[honne -day1](https://youtu.be/hWOB5QYcmh0)   
-> 시몬스침대 광고하던 그남자  
+[call on me](https://youtu.be/fdWAX2SorvE)   
+> 코론미
 
-[upsahl - people i dont like](https://youtu.be/GYLcu5tFjUU)  
-> dont be the member of the people i dont like ^^  kkk
+[t-ara를 아쉽니까?? ㅎㅎ](https://youtu.be/AmdgIK8-raM)    
 
-[dawn- phobia](https://youtu.be/fPeuUFrSc0k)  
-> "다운"   
+[오늘의 people 반하나!!](https://youtu.be/IE1rRjyjsXU)    
 
-[MkX - right place, at the right time](https://youtu.be/UNvaQxe8MGw)
-> mkx ahrthfl qkrfursjacudy ^^
-   
 
-![](https://scienceoflove.co.kr/wp-content/uploads/2016/01/sol015_illu_03.png)  
-> dhsmf gkfneh sjan rhtod aksgdmtuttmqslek ekemf whgdms qka ehltpdy !!  
+![](https://c8.alamy.com/comp/JRCYAC/farewell-word-cloud-concept-JRCYAC.jpg)  
+> thanks for coming!!  
