@@ -4,12 +4,8 @@
 
 
 
-[call on me](https://youtu.be/fdWAX2SorvE)   
-> _코론미_
-
-[t-ara를 아쉽니까?? ㅎㅎ](https://youtu.be/AmdgIK8-raM)    
-
-[오늘의 people 반하나!!](https://youtu.be/IE1rRjyjsXU)    
+[우리조로!](https://youtu.be/wU5TRjxLTTU)     
+   
 
 
 ![](https://c8.alamy.com/comp/JRCYAC/farewell-word-cloud-concept-JRCYAC.jpg)  
