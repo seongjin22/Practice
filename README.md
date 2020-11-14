@@ -12,6 +12,7 @@
 
 ![](https://i.ytimg.com/vi/se7YOpf9Q0E/maxresdefault.jpg)  
 괴물~~래퍼~~ 신인 망고의 today's Pick  
+[Johnny Stimson - Flower](https://youtu.be/sgNkCrAhTGc)
 아참고로 내일은 망고씨 근무서는날입니다 ^^+  
 
 [오늘의 엔딩곡~](https://youtu.be/NmeaLvaU77Q)  
