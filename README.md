@@ -1,7 +1,7 @@
 #  
 
 ![](https://cdnweb01.wikitree.co.kr/webdata/editor/202010/06/img_20201006155939_e3f93181.webp)   
-7조 어서오고 ^^  
+__7조__ 어서오고 ^^  
 
 [첫눈처럼 너에게 가겠ㄸr - 소향](https://youtu.be/XQmnDmsCovI)       
 
