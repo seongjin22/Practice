@@ -1,6 +1,6 @@
 #  
 
-![](https://cdnweb01.wikitree.co.kr/webdata/editor/202010/06/img_20201006155939_e3f93181.webp)   
+![](<img width="449" alt="20201114_122801" src="https://user-images.githubusercontent.com/71762478/99138600-19c06380-2675-11eb-81e1-664219911def.png">)   
 __7조__ 어서오고 ^^  
 
 [첫눈처럼 너에게 가겠ㄸr - 소향](https://youtu.be/XQmnDmsCovI)       
