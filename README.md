@@ -12,7 +12,7 @@
 
 ![](https://i.ytimg.com/vi/se7YOpf9Q0E/maxresdefault.jpg)  
 괴물~~래퍼~~ 신인 망고의 today's Pick  
-
+아참고로 내일은 망고씨 근무서는날입니다 ^^+  
 
 [오늘의 엔딩곡~](https://youtu.be/NmeaLvaU77Q)  
 >> 시몬스 침대의 광고음악입니ㅣ다~ 다들 굿밤 ^__^  
