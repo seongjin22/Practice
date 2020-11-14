@@ -11,5 +11,5 @@
 [오늘의 엔딩곡~](https://youtu.be/NmeaLvaU77Q)
 >> 시몬스 침대의 광고음악입니ㅣ다~  
 다들 굿밤이여!  
-![](https://c8.alamy.com/comp/JRCYAC/farewell-word-cloud-concept-JRCYAC.jpg)  
-> thanks for coming!!  
+
+  
