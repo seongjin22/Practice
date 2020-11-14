@@ -4,7 +4,7 @@
 
 
 [하이요 ^^](https://youtu.be/AP6qS2m6Cyc)   
-
+> 참고로 육군병장만기전역 햇읍니다 오해 마시길 ^^  
 
 [Years & Years & MNEK - Valentino](https://youtu.be/62IVsykyYM4)        
   
