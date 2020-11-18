@@ -8,7 +8,8 @@
   
   
 [Dancing with your ghost](https://youtu.be/K4bDMkSeRUA)    
- > 맹고씨가 카페에서 줍줍 하였다고 합니다 ^^  
+![](https://user-images.githubusercontent.com/71762478/99545398-af068380-29f8-11eb-9b4a-b0b1b6fd871a.png) 
+> 그렇다고 합니다!  
  
   
 [이적 - 당연한것들](https://youtu.be/LYSR0iAF8iw)  
