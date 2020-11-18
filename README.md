@@ -18,5 +18,5 @@
 [Ciki -syndrome](https://youtu.be/xFVarolUqJU)  
  > 오늘의 엔딩곡~ 내일도 화이ㅣ팅 해요 다들 !  
     
-    
-  
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRiJpfRx3ikpLzQNsrqaQ7jHnVTZt4NKeTxEw&usqp=CAU)     
+ 
