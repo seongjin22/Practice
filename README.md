@@ -1,26 +1,17 @@
 # 
 
-![](https://coinpan.com/files/attach/images/198/998/361/165/83832a8d75ae559ed65ce2ec57571769.jpeg)   
-안녕 어서오고~       
+![](https://i.pinimg.com/736x/8d/2c/85/8d2c85dbdaaaed8c2ec928f109a3051d.jpg)   
+오늘은 수면을 위한 노래들로 구성 햇슴다~__~  
 
-First. 맹고 추천 곡*^^*  
-[빛나는 거](https://youtu.be/2HQ8VoxDhHo)
 
-Second. YJ's List에서 줍줍^^b 춤추고 시픈 너래네여ㅎㅎ  
-[Take u dancing](https://youtu.be/ek47AedbCME)    
-
-[bad intentions](https://youtu.be/CPmOSmPmUsw)  
-비움에서 들었으면 좋았을거 같은 곡 하나 ~
-
-[tuxedo - do it](https://youtu.be/vEbrlBzRudU)    
-tuxedo 입고 do it 
-))  
-((  
-))  
-((  
+[시대를 초월한 마음(時代を越える想い) - 이누야샤(犬夜叉) OST](https://youtu.be/nNPKSIuc5jg)  
     
-
-![](https://t1.daumcdn.net/cfile/tistory/27316F365875BD0D28)  
-장판 is 행복입니당ㅜㅜ 다들 GB(굿밤)zzZ      
-
-__DJ.Hand + Mangoso0
+    
+[인생의 회전목마 (Merry Go Round of Life) - 하울의 움직이는 성(Howl's Moving Castle)](https://youtu.be/5u5oCjrIu60)    
+    
+    
+[Yiruma, (이루마) - Stay in Memory (기억에 머무르다)](https://youtu.be/d2EPSJ_-prw)  
+    
+  
+![](https://upload2.inven.co.kr/upload/2018/03/22/bbs/i15492589220.png)  
+  
