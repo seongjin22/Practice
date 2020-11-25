@@ -1,6 +1,6 @@
 # 
 
-![](https://i.pinimg.com/736x/4a/b6/97/4ab697eb411c7c6190bcf052058e33ac.jpg) 
+![](https://i.pinimg.com/736x/4a/b6/97/4ab697eb411c7c6190bcf052058e33ac.jpg)   
 잠 깰 사람 Go to Click1,2  
 그만하고 잘 사람은 Go to Click3,4,5 
 
