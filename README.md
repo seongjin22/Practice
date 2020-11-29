@@ -12,4 +12,4 @@
 
 오늘도 고생 많았음 !__! 낼도 화이팅    
   
-![](https://cdn.crowdpic.net/list-thumb/thumb_l_4D852DA1EE090220555A65851324470A.jpeg)  
+![](https://post-phinf.pstatic.net/MjAxOTA2MjhfMjI2/MDAxNTYxNzA5NjM2MTg2.t6-T-XCehgScI0qUCfYH9URGAo30azQ-bbtMrFGBV5kg.K2X9CS0SEC28hC_g9n5EdWcGlPfMZ-EPa1bSp8uksw0g.GIF/chansem_zalga-cute-smile-ani.gif?type=w1200)  
