@@ -5,7 +5,7 @@
 그만하고 잘 사람은 Go to Click 3,4,5   
 
 [Click1](https://youtu.be/-WgqndZu_Tk)           
-[Click2](https://youtu.be/Ge6XEOnRJqs)  
+[Click2](https://youtu.be/K7o4nYV0ns4)  
   
 [Click3]( https://youtu.be/OJAKYX8A_WM)     
 [Clikc4](https://youtu.be/4_zR8mAYAEY)  
