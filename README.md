@@ -4,8 +4,8 @@
 잠 깰 사람 Go to Click1,2    
 그만하고 잘 사람은 Go to Click 3,4,5   
 
-[Click1](https://youtu.be/u24mMK0Hbuw)           
-[Click2](https://youtu.be/-WgqndZu_Tk)    
+[Click1](https://youtu.be/-WgqndZu_Tk)           
+[Click2](https://youtu.be/Ge6XEOnRJqs)  
   
 [Click3]( https://youtu.be/OJAKYX8A_WM)     
 [Clikc4](https://youtu.be/4_zR8mAYAEY)  
