@@ -1,8 +1,9 @@
 # 
 규림이 안녕 ^__^
 ![](https://item.kakaocdn.net/do/6469168a79defa072447178b97ef35cff43ad912ad8dd55b04db6a64cddaf76d)   
-오늘 너무 재밋었어~ ㅎㅎ  
 
+
+오늘 너무 재밋었어~ ㅎㅎ  
 담에 더 재밌게 놀좌!
 
 
