@@ -10,7 +10,6 @@
 
 [팝송은 아닌데 내가 진짜 좋아해서 넣은 노래](https://youtu.be/qYYJqWsBb1U)           
 [저스틴 비버 peaches 알아?? 그거 커버한거중에 젤 좋았던거 ㅎ](https://youtu.be/t7w3k3pjZY4)  
-  
 [좋아](https://youtu.be/y7Jlg8GkJnE)     
 [시몬스 침대광고 나왔던 그노래!! 푹자렴 ^))^](https://youtu.be/NmeaLvaU77Q)  
  
