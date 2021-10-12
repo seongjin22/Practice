@@ -8,8 +8,8 @@
 [잔나비 최애곡](https://youtu.be/WXUkFwCx4UQ)  
 [비오는날엔 헤이즈+++](https://youtu.be/eEx9Y8PE-Fc)  
 너무 우울하기만 하면 싫으니까  
-[아끼는 노래 하나 ㅎㅎ](https://youtu.be/IuqOUNEQOP0)     
- 
- 
+[아끼는 노래 하나 ㅎㅎ](https://youtu.be/IuqOUNEQOP0)  
+  
+잘자 규림이 ㅎ
   
 ![](https://t1.daumcdn.net/cfile/blog/1878023E4D685B5E2C)  
