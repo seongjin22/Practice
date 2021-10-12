@@ -1,5 +1,5 @@
 # 
-![](https://item.kakaocdn.net/do/6469168a79defa072447178b97ef35cff43ad912ad8dd55b04db6a64cddaf76d)   
+![](https://image-notepet.akamaized.net/card_news/201907/8ee7feb500e154ba61bc0f8fad06b07f.jpg)   
 
 
 하 위 ~  
@@ -14,4 +14,4 @@
  
  
   
-![](https://post-phinf.pstatic.net/MjAxOTA2MjhfMjI2/MDAxNTYxNzA5NjM2MTg2.t6-T-XCehgScI0qUCfYH9URGAo30azQ-bbtMrFGBV5kg.K2X9CS0SEC28hC_g9n5EdWcGlPfMZ-EPa1bSp8uksw0g.GIF/chansem_zalga-cute-smile-ani.gif?type=w1200)  
+![](https://user-images.githubusercontent.com/71762478/136978121-42b4dff5-9d59-4e71-9a1e-b5beb580d150.jpg)  
