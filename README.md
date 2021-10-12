@@ -1,11 +1,8 @@
 # 
 ![](https://image-notepet.akamaized.net/card_news/201907/8ee7feb500e154ba61bc0f8fad06b07f.jpg)   
 
-
-하 위 ~  
-달떡 먹자 내일 헤헿
-
-
+공부하느라 고생많지 울 규림이 ㅎㅎ  
+오늘두 고생 많았당 ㅎㅎㅎㅎㅎ  
 
 [다운 좋아](https://youtu.be/DGFsc3Ksqug)            
 [유라++카더가든](https://youtu.be/DVcU7LC_6G0)   
