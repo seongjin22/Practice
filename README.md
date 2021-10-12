@@ -1,5 +1,5 @@
 # 
-![](https://user-images.githubusercontent.com/71762478/136979690-4dd53466-d501-4368-bb54-6712ef32428b.jpg)   
+![](https://user-images.githubusercontent.com/71762478/136988905-db95f489-ec44-46b1-9c2d-79b656eb4e46.jpg)   
 
 공부하느라 고생많지 울 규림이 ㅎㅎ  
 오늘두 고생 많았당 ㅎㅎㅎㅎㅎ  
